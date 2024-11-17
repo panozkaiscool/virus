@@ -1,0 +1,2 @@
+this is for educational purposes. only I'm not launching the virus if u want to double-click on cristajzjVirus.bat or don't if u don't want to 
+IM NOT A KID OR TEENAGER under 13 not allowed. only adults.
